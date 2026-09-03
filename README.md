@@ -1,5 +1,7 @@
 # Welcome to my Design collection :stars:
 
+Also updating at [My googlel drive folder: designs and arts](https://drive.google.com/drive/folders/1LAIhA_zFodtSKBHI2fUzqt2NgroOUOt4?usp=sharing), might be easier to view :)
+
 This repo stores (some of) my artworks, including
 
 - **IG posts** - mostly from my club's social media when I was the pubs
